@@ -10,10 +10,11 @@ I am interested in and a member of the community;   ⋆      ִ        ִֶָ   
 Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Scream.              ✧
 
 
-.       ✧           𓂃           ⋆         
+         ✧              𓂃           ⋆         
 
 
-Main Kinlist;  ˖       ⋆         ִ              ☾           . 
+Main Kinlist;    
+˖       ⋆         ִ              ☾           . 
 
 Dirk(Homestuck), SecB(Mineshield), Linch(Linch), Chance(Forsaken), Will(One wheat mark), Astro(Dandy World), Sasha Sobakin(The Promise of Hope), Sharon(Lololowka), Jessie ۫ Wheels(Hollowhemlocks), ⋆ . 
 Evan/Habit(EverymanHYBRID)     𓂃  ⋆   ࣪ ˖ ‌‎

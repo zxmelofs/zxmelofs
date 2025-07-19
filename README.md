@@ -30,5 +30,7 @@ Favorite pairings;
 Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Shedletsky, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer
 
 
+![photo_5467488313087751343_x](https://github.com/user-attachments/assets/79fb0ec2-6817-40ac-8e81-6c69395bab80)
+
         
 cr avatar  pwgood pank pinterest EmDetei_heh; cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧

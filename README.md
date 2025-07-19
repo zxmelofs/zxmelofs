@@ -21,4 +21,4 @@ Evan/Habit(EverymanHYBRID) 𓂃  ⋆   ࣪   ˖ ‌‎
 
         ✧                                     𓂃 
         
-cr avatar collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧
+cr avatar  pwgood pank pinterest EmDetei_heh; cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧

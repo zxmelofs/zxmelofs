@@ -5,7 +5,7 @@ Welcome to my info!! I am Melof, a person with quite interesting views on life a
 
 
 I am interested in and a member of the community;   ⋆      ִ        ִֶָ      '   
-
+  𓂃 ⋆   ࣪      ˖ ‌‎   ۫
        
 Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Scream.              ✧
 
@@ -20,7 +20,7 @@ Evan/Habit(EverymanHYBRID)     𓂃  ⋆   ࣪ ˖ ‌‎
 
 
         ✧                                     𓂃 
-
+  𓂃 ⋆   ࣪      ˖ ‌‎   ۫
 
 ![photo_5467488313087751300_y](https://github.com/user-attachments/assets/4af37999-bc43-4dd5-a75b-458f3eb0d12a)
 

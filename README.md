@@ -27,7 +27,7 @@ Evan/Habit(EverymanHYBRID)     𓂃  ⋆   ࣪ ˖ ‌‎
 Favorite pairings;
 
 
-Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Shedletsky, 1x1x1x1x/07n7, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer.
+Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Shedletsky, 1x1x1x1x/07n7, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer/Pest.
 
 
 ![photo_5467488313087751350_y](https://github.com/user-attachments/assets/4f77b56e-4682-48bb-9795-946d35d43f1c)

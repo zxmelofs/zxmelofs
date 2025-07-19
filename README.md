@@ -28,7 +28,7 @@ Favorite pairings;
 
 
 Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Shedletsky, 1x1x1x1x/07n7, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer/Pest.
-
+𓂃   ⋆ ࣪   ˖ ‌‎ ۫
 
 I work in;
 

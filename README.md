@@ -31,7 +31,7 @@ Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Sh
 
 
 
-![photo_5467488313087751344_x](https://github.com/user-attachments/assets/64581159-e926-40bd-845e-a38fa017432d)
+         ![photo_5467488313087751344_x](https://github.com/user-attachments/assets/64581159-e926-40bd-845e-a38fa017432d)
 
 
         

@@ -24,5 +24,11 @@ Evan/Habit(EverymanHYBRID)     𓂃  ⋆   ࣪ ˖ ‌‎
 
 ![photo_5467488313087751300_y](https://github.com/user-attachments/assets/4af37999-bc43-4dd5-a75b-458f3eb0d12a)
 
+Favorite pairings;
+
+Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Shedletsky, Two time/Elliot, Azure/Two time
+
+![photo_5467536266397612551_x](https://github.com/user-attachments/assets/f509f177-a30b-46dd-b267-6c7ff18f898c)
+
         
 cr avatar  pwgood pank pinterest EmDetei_heh; cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧

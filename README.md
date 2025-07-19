@@ -35,6 +35,6 @@ Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance 07n7/Elliot, 1x1x1x1x1/Sh
         
 cr avatar pwgood pank pinterest EmDetei_heh; 
 
-˖        ࣪         ˖ ‌‎     ۫  
+  𓂃 ⋆   ࣪      ˖ ‌‎   ۫
 
 cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧

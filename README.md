@@ -36,7 +36,7 @@ I work in;
 
 [Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf), [yandex music](https://t.me/Yandex_musicCf), [mineshield](https://t.me/mineshieldconf), [find people](https://t.me/findpeoplecf), [yuri confession](https://t.me/yuripornuha).
 
-[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link)
+[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link) ENG/RUS 𓂃 
 
 ![photo_5467488313087751350_y](https://github.com/user-attachments/assets/4f77b56e-4682-48bb-9795-946d35d43f1c)
 

@@ -16,7 +16,7 @@ Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dr
 Main Kinlist;    ˖       ⋆         ִ              ☾           . 
 
 Dirk(Homestuck), SecB(Mineshield), Linch(Linch), Chance(Forsaken), Will(One wheat mark), Astro(Dandy World), Sasha Sobakin(The Promise of Hope), Sharon(Lololowka), Jessie ۫ Wheels(Hollowhemlocks), ⋆ . 
-Evan/Habit(EverymanHYBRID)     𓂃  ⋆   ࣪ ˖ ‌‎
+Evan/Habit(EverymanHYBRID), Pest(Regrevator)   𓂃  ⋆   ࣪ ˖ ‌‎
 
 
           ✧                                     𓂃 

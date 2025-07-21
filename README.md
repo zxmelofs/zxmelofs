@@ -36,6 +36,8 @@ I work in;
 
 Pony Town, Relationship, yandex music, mineshield, find people, yuri confession.
 
+[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link)
+
 ![photo_5467488313087751350_y](https://github.com/user-attachments/assets/4f77b56e-4682-48bb-9795-946d35d43f1c)
 
         

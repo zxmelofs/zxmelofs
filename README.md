@@ -34,7 +34,7 @@ Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance, iTrapped/mafioso, 07n7/E
 
 I work in;
 
-[Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf), [yandex music](https://t.me/Yandex_musicCf), [mineshield](https://t.me/mineshieldconf), [find people](https://t.me/findpeoplecf), [yuri confession(18+)](https://t.me/yuripornuha).
+[Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf), [yandex music](https://t.me/Yandex_musicCf), [mineshield](https://t.me/mineshieldconf), [find people](https://t.me/findpeoplecf), [yuri(18+)](https://t.me/yuripornuha) confession.
 
 [My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link) ENG/RUS 𓂃 
 

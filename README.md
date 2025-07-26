@@ -27,7 +27,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)   𓂃  ⋆   ࣪ ˖ ‌‎
 Favorite pairings;
 
 
-Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance, iTrapped/Mafioso, 07n7/Elliot, 1x1x1x1x1/Shedletsky, 1x1x1x1x/07n7, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer/Pest.
+Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance, iTrapped/Mafioso, 07n7/Elliot, 1x1x1/Shedletsky, 1x1x1/07n7, 1x1x1/John Doe, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer/Pest.
 𓂃   ⋆ ࣪   ˖ ‌‎ ۫
 
      𓂃 

@@ -46,6 +46,3 @@ cr avatar pwgood pank pinterest [EmDetei_heh](https://pin.it/2a9Z3enWD);
   𓂃 ⋆   ࣪      ˖ ‌‎   ۫
 
 cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter ✧
-
-![photo_5206195125707995011_x](https://github.com/user-attachments/assets/85208efe-ee08-4690-82a1-d61d360743bf)
-

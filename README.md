@@ -1,4 +1,4 @@
-**_Welcome to my info!! I am Melof, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
+**_Welcome to my info!! I am <Melof>, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
                 𓂃                          ✧                    
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
 

@@ -5,7 +5,9 @@
 **_Welcome to my info!! I am Melof, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
                 𓂃                          ✧                    
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
+
 ![photo_5467488313087751166_y](https://github.com/user-attachments/assets/f5e10c0e-567e-4b61-a983-967207b41cb2)
+
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 **_I am interested in and a member of the community;_**  ⋆      ִ        ִֶָ      '   
@@ -26,7 +28,9 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
           ✧                                     𓂃 
   𓂃 ⋆   ࣪      ˖ ‌‎   ۫
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
+
 ![photo_5467488313087751300_y](https://github.com/user-attachments/assets/4af37999-bc43-4dd5-a75b-458f3eb0d12a)
+
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 **_Favorite pairings;_**
@@ -44,7 +48,9 @@ _[Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf)
 _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link) ENG/RUS_ 𓂃 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
+
 ![photo_5467488313087751350_y](https://github.com/user-attachments/assets/4f77b56e-4682-48bb-9795-946d35d43f1c)
+
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
         
 **_cr avatars - ;_**

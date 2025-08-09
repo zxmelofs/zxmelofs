@@ -18,7 +18,7 @@
 _Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Scream._              ✧
 
 
-     𓂃   ⋆   ࣪    ☾     ˖ ‌‎ ۶ৎ  𓂃   ۫    ☆
+     𓂃   ⋆   ࣪    ☾     ˖ ‌‎ ۶ৎ  𓂃   ۫    ☆  ˚ .
 
 **_Main Kinlist;_**    ˖       ⋆         ִ              ☾           . 
 

@@ -61,5 +61,4 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-
         ✧    𓂃   ⋆     ☾      ⋆     𓂃     ☆    ⋆

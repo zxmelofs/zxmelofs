@@ -58,3 +58,5 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
 **_cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter_** ✧
+
+₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊

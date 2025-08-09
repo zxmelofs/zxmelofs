@@ -1,6 +1,6 @@
 **_₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊─── ⋆⋅☆⋅⋆ ── ⋆˚୨୧Inf✰rmation୨୧˚⋆─── ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊_**
 
-         ✧              𓂃           ⋆                  ☆
+         ✧      𓂃   ⋆        ☾        ⋆        𓂃         ☆    ⋆
 
 **_Welcome to my info!! I am Melof, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
          ☆       𓂃                          ✧                    
@@ -18,7 +18,7 @@
 _Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Scream._              ✧
 
 
-     𓂃     ⋆   ࣪     ☾     ˖ ‌‎   ۫     ☆
+     𓂃     ⋆   ࣪     ☾     ˖ ‌‎   𓂃    ۫     ☆
 
 
 **_Main Kinlist;_**    ˖       ⋆         ִ              ☾           . 

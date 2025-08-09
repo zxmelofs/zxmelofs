@@ -61,4 +61,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
+![photo_5242218798830974602_x](https://github.com/user-attachments/assets/7282f93c-a932-4e51-ab55-990798a9f8a6) I M STUPID -
+
+
         ✧    𓂃   ⋆     ☾      ⋆     𓂃     ☆    ⋆

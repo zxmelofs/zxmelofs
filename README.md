@@ -52,7 +52,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 
-   ☆       𓂃           ۶ৎ  ![1755515522310](https://github.com/user-attachments/assets/d5f856e7-698c-4365-834e-e8b228cb250b) ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ <img width="736" height="500" alt="Без названия75_20250818134804" src="https://github.com/user-attachments/assets/67ed19b3-6689-40bc-a6f2-0b5d67b27561" /> ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊

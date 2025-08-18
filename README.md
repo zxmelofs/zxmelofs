@@ -50,7 +50,9 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-   ☆       𓂃           ۶ৎ  ![photo_5267151586495434183_x](https://github.com/user-attachments/assets/4531b06d-1878-4bf7-a3b4-c8a72cf8df6e)    ☆       𓂃           ۶ৎ
+
+   ☆       𓂃           ۶ৎ  ![photo_5267151586495434196_x](https://github.com/user-attachments/assets/66698ef9-b949-4426-a001-b951d7270b4b)
+   ☆       𓂃           ۶ৎ
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -59,7 +61,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
-**_cr pin collab doublefedora, mafioso - @t0ffeellek, chance - @yaarbuz31 twitter_** ✧
+**_cr pin 1 - haru0816nfs, 2 pin - , 3 pin amfeii _** ✧
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 

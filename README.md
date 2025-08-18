@@ -7,7 +7,7 @@
                 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
 
-![photo_5240010502741030328_y](https://github.com/user-attachments/assets/df200000-8069-4693-9a56-4284dec0fe65)
+!![photo_5267151586495434172_x](https://github.com/user-attachments/assets/58ec8ff4-6fdf-44d7-afa7-46ffaf77b4dc)
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -15,7 +15,7 @@
 **_I am interested in and a member of the community;_**  ⋆      ִ        ִֶָ      '   
   𓂃 ⋆   ࣪      ˖ ‌‎   ۫  ☆
        
-_Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Scream._              ✧
+_Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, SHTDN, Scream._              ✧
 
 
      𓂃   ⋆   ࣪    ☾     ˖ ‌‎ ۶ৎ  𓂃   ۫    ☆  ˚ .
@@ -29,7 +29,8 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-![photo_5467488313087751300_y](https://github.com/user-attachments/assets/4af37999-bc43-4dd5-a75b-458f3eb0d12a)
+![photo_5267151586495434171_x](https://github.com/user-attachments/assets/cbbff1d0-e5ef-497f-92e8-6eae37ecb989)
+
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
@@ -49,7 +50,8 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-![photo_5467488313087751350_y](https://github.com/user-attachments/assets/4f77b56e-4682-48bb-9795-946d35d43f1c)
+![photo_5267151586495434174_x](https://github.com/user-attachments/assets/5488b0fc-511e-4e87-ac6a-469493a5a460)
+
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
         

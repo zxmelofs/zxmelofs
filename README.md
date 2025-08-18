@@ -8,7 +8,7 @@
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
    
 
-   ☆       𓂃           ۶ৎ   ![photo_5267151586495434172_x](https://github.com/user-attachments/assets/66aaf1a4-6704-4486-9e57-45a7f3ef75c6) ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ   ![1755515060173](https://github.com/user-attachments/assets/3be37eb7-cbba-418d-a514-523c2edae69e) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -30,7 +30,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-   ☆       𓂃           ۶ৎ  ![photo_5267151586495434171_x](https://github.com/user-attachments/assets/a4865c03-d16e-48a1-bb7d-185a4214df03) ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ ![1755515275200](https://github.com/user-attachments/assets/528f66fc-9e4a-4c71-8f15-d3db2e1bc7bb) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -52,7 +52,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 
-   ☆       𓂃           ۶ৎ  ![photo_5267151586495434196_x](https://github.com/user-attachments/assets/e8bb34c6-94b6-4c82-9046-e4eb3f87a1d6)    ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ  ![1755515522310](https://github.com/user-attachments/assets/d5f856e7-698c-4365-834e-e8b228cb250b) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊

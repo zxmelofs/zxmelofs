@@ -61,7 +61,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
-**_cr pin 1 - haru0816nfs, 2 pin - , 3 pin amfeii _** ✧
+**_cr pin 1 - haru0816nfs, 2 pin - , 3 pin amfeii_** ✧
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 

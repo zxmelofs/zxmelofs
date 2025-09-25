@@ -14,7 +14,8 @@
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 **_I am interested in and a member of the community;_**  ⋆      ִ        ִֶָ      '   
-  𓂃 ⋆   ࣪      ˖ ‌‎   ۫  ☆
+
+    𓂃    ⋆   ࣪   ˖ ‌‎   ۫  ☆
        
 _Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, SHTDN, Scream._              ✧
 

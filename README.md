@@ -45,7 +45,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
      𓂃    ⋆   ࣪     ࣪۶ৎ  ˖ ‌‎   ۫  ☆
    
-**_Mineshield;_** _PWGood/Sanhez, PWBad/Sanhez, Just_S/SecB, Just_S/Alfedov, ObsidianTimes69/Dushenka, Hayd1/NikiWright, Hayd1/Venazar, NeO/SnrGiraffe._
+**_Mineshield;_** _PWGood/Sanhez, PWBad/Sanhez, Just_S/SecB, Just_S/Alfedov, Alfedov/Sanhez, ObsidianTimes69/Dushenka, Hayd1/NikiWright, Hayd1/Venazar, NeO/SnrGiraffe._
 
         ✧    𓂃  ⋆  ࣪۶ৎ  ˖ ‌ ≧◡≦  ‎ ۫    𓂃  ☆
      

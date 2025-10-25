@@ -67,7 +67,8 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
-**_cr pin @miuwtf , 2 pin - @miuwtf , 3 pin @miuwtf ** ✧
+**_cr pin @miuwtf , 2 pin - @miuwtf , 3 pin @miuwtf_** ✧
+       **_I LOVE MIUWTF-_**
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 

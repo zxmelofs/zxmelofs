@@ -8,7 +8,7 @@
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
    
 
-   ☆       𓂃           ۶ৎ  <img width="736" height="500" alt="Без названия75_20250818143449" src="https://github.com/user-attachments/assets/7370504b-c4c0-45f6-a6bd-b1159e48bbc0" /> ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ ![5469684750772990936](https://github.com/user-attachments/assets/e30fda7b-6fd0-490d-86d5-25943faf7d9f) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -31,7 +31,8 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-   ☆       𓂃           ۶ৎ <img width="736" height="500" alt="Без названия76" src="https://github.com/user-attachments/assets/f99a1fc7-80e5-437a-953e-85877b08b68e" /> ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ  ![5469684750772990937](https://github.com/user-attachments/assets/76b08bc1-5e27-4c1c-b1e0-5167cf58fe94)  ۶ৎ       𓂃          ☆
+   
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
@@ -41,6 +42,8 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
 _Roblox; Mafioso/Chance, Chance/Elliot, iTrapped/Chance, iTrapped/Mafioso, 07n7/Elliot, Shedletsky/Builderman, 1x1x1x1/Shedletsky, 1x1x1x1/07n7, 1x1x1x1/John Doe, Two time/Elliot, Azure/Two time, Noli/07n7, Griefer/Player, Griefer/Pest._
 𓂃   ⋆ ࣪   ˖ ‌‎ ۫
+
+_Mineshield; PWGood/Sanhez, PWBad/Sanhez, Just_S/SecB, Just_S/Alfedov, ObsidianTimes69/Dushenka, Hayd1/NikiWright, Hayd1/Venazar, NeO/SnrGiraffe. _
 
         ✧    𓂃  ⋆  ࣪۶ৎ  ˖ ‌ ≧◡≦  ‎ ۫    𓂃  ☆
      
@@ -53,16 +56,16 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 
-   ☆       𓂃           ۶ৎ <img width="736" height="500" alt="Без названия75_20250818143509" src="https://github.com/user-attachments/assets/50ebf8c2-ce30-48a4-babc-2af5a6a40ffa" /> ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ ![5469684750772990989](https://github.com/user-attachments/assets/feed1e31-f8fa-44d9-9f6a-5ac9155846f1) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
         
-**_cr avatars - ;_**
+**_cr avatars @miuwtf ;_**
 
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
-**_cr pin 1 - haru0816nfs, 2 pin - , 3 pin amfeii_** ✧
+**_cr pin @miuwtf , 2 pin - @miuwtf , 3 pin @miuwtf ** ✧
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 

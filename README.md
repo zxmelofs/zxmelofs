@@ -31,7 +31,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
-   ☆       𓂃           ۶ৎ  ![5229142835326554888](https://github.com/user-attachments/assets/b06ca98b-e759-43c1-a5d0-7cee4292703b) ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ  ![5229142835326554904](https://github.com/user-attachments/assets/3234d82d-505b-419d-9752-582e6e103405) ۶ৎ       𓂃          ☆
    
 
 
@@ -58,7 +58,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 
 
-   ☆       𓂃           ۶ৎ ![5229142835326554882](https://github.com/user-attachments/assets/aa0d0805-0a21-495e-be44-53905994a6bd) ۶ৎ       𓂃          ☆
+   ☆       𓂃           ۶ৎ ![5229142835326554905](https://github.com/user-attachments/assets/3ced9160-b405-47e5-a6bc-412e155fcffb) ۶ৎ       𓂃          ☆
 
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊

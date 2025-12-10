@@ -2,7 +2,7 @@
 
          ✧    𓂃   ⋆     ☾      ⋆     𓂃     ☆    ⋆
 
-**_Welcome to my info!! I am Melof, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
+**_Welcome to my info! I am Melof, a person with quite interesting views on life and the world itself. Not bad as a photographer (for me it is like a hobby), previously had experience in the poetic theme. I use different pronouns but in particular he/him._** ✧      ۫     ⋆ 
          ☆       𓂃           ۶ৎ              ✧                    
                 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊  
@@ -68,7 +68,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
 **_cr pin 1 - SoyDeTodoXd , 2 pin - , 3 pin -_** ✧
-       **_I LOVE HABIT-_**
+       **_I LOVE HABIT AND RED-_**
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 

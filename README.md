@@ -67,7 +67,7 @@ _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium
 
           𓂃    ⋆   ࣪  ☾   ˖ ‌‎ ۶ৎ  ۫    ☆
 
-**_cr pin - , 2 pin - , 3 pin -_** ✧
+**_cr pin 1 - SoyDeTodoXd , 2 pin - , 3 pin -_** ✧
        **_I LOVE HABIT-_**
 
 ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊

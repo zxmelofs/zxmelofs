@@ -17,7 +17,7 @@
 
     𓂃    ⋆   ࣪   ˖ ‌‎   ۫  ☆
        
-_Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, COR, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, SHTDN, Scream._              ✧
+_Twitch, Lololowka, Homestuck, Mineshield, Mineshield Academy, COR, DSMP, Forsaken, Dream Game, Block Tales, Dandy World, Roblox, Cookie Run Kingdom, NU: Carnival, Linch, One Wheat Mark, Sekai, Promise of Hope, Skullgirls, Hollowhemlocks, SP5, Slendervers, EverymanHYBRID, Hello Charlotte, Hazbin Hotel, SHTDN, Scream._              ✧
 
 
      𓂃   ⋆   ࣪    ☾     ˖ ‌‎ ۶ৎ  𓂃   ۫    ☆  ˚ .

@@ -42,7 +42,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 **_Hazbin Hotel;_** _RadioStatic, RadioSilence, Chaggie, GuitarSpear, HuskerDust, CherriSnake._
 𓂃   ⋆    ⌗𓈒  ˖ ‌‎  ۫
 
-        '    ⸝⸝    . ᐟ 𝅄     ۫   结 束  𓂃        ˖    ‌‎ ۫      
+        '     ⋆       𝅄     ۫   结 束  𓂃        ˖    ‌‎ ۫      
 
 **_Roblox;_** _Ring/Spawn, Shedletsky/Builderman, 1x1x1x1/Shedletsky, Griefer/Player, Griefer/Pest._
 𓂃   ⋆ ࣪   ˖ ‌‎ ۫

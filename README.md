@@ -42,7 +42,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
 **_Hazbin Hotel;_** _RadioStatic, RadioSilence, Chaggie, GuitarSpear, HuskerDust, CherriSnake._
 𓂃   ⋆    ⌗𓈒  ˖ ‌‎  ۫
 
-        '     ⋆       𝅄     ۫   结 束  𓂃        ˖    ‌‎ ۫      
+        '     ⋆  ۶ৎ   𝅄     ۫   结 束  𓂃   ୨୧   ˖    ‌‎ ۫      
 
 **_Roblox;_** _Ring/Spawn, Shedletsky/Builderman, 1x1x1x1/Shedletsky, Griefer/Player, Griefer/Pest._
 𓂃   ⋆ ࣪   ˖ ‌‎ ۫
@@ -55,7 +55,7 @@ Evan/Habit(EverymanHYBRID), Pest(Regrevator)_   𓂃  ⋆   ࣪ ˖ ‌‎
      
 **_I work in;_**
 
-_[Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf), [yandex music](https://t.me/Yandex_musicCf), [mineshield](https://t.me/mineshieldconf), [find people](https://t.me/findpeoplecf) confession._
+_[Pony Town](https://t.me/pt_conf), [Relationship](https://t.me/relationship_cf), **previously** [yandex music](https://t.me/Yandex_musicCf), [mineshield](https://t.me/mineshieldconf), **previously** [find people](https://t.me/findpeoplecf) confession._
 
 _[My yandex music](https://music.yandex.ru/users/narkowik/playlists/3?utm_medium=copy_link) ENG/RUS_ 𓂃 
 
